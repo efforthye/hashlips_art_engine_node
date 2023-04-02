@@ -14,7 +14,7 @@ To find out more please visit:
 
 [🐦 Twitter](https://twitter.com/hashlipsnft)
 
-[ℹ️ Website](https://hashlips.online/HashLips)
+[ℹ️ Website](https://hashlips.online/HashLips) 
 
 # HashLips Art Engine 🔥
 
